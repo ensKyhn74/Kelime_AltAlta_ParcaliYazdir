@@ -1,0 +1,1 @@
+# Kelime_AltAlta_ParcaliYazdir
